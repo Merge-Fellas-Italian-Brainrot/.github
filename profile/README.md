@@ -2,7 +2,7 @@
 
 ![Merge Fellas Italian Brainrot](https://raw.githubusercontent.com/Merge-Fellas-Italian-Brainrot/.github/refs/heads/main/merge-fellas-italian-brainrot.png "Merge Fellas Italian Brainrot")
 
-🖱️ **Click to Play Now**: [Experience Merge Fellas Italian Brainrot](https://clicker-game.com/merge-fellas-italian-brainrot/ "Merge Fellas Italian Brainrot")
+🖱️ **Click to Play Now**: [Merge Fellas Italian Brainrot](https://clicker-game.com/merge-fellas-italian-brainrot/ "Merge Fellas Italian Brainrot")
 
 ## Welcome to Merge Fellas Italian Brainrot - Where Memes Collide!
 
